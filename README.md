@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ria-gee
 - 👀 I’m interested in spending time with family and doing my job & trade of crypto currency
-- 🌱 I’m currently learning how to trade oin different exchanges
+- 🌱 I’m currently learning how to trade on different exchanges
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ranairam@gmail.com
 
